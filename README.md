@@ -1,2 +1,0 @@
-# TaKe-OvEr
-Take-Over 
